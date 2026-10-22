@@ -1,6 +1,6 @@
-# Japanese-Style-Home-Move-in-Singapore
+# japanese centric home moving services singapore
 
-Japanese Style Home Move in Singapore
+Japanese Centric Home Moving Services Singapore
 
 <img width="1448" height="1086" alt="Japanese-Centric Home Moving Services" src="https://github.com/user-attachments/assets/c8509816-ab25-4504-9a86-1a717999fcd4" />
 
